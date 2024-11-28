@@ -1,0 +1,8 @@
+![FitMind_Schema](https://github.com/user-attachments/assets/2a6a6892-21da-4128-9713-896c6e36e6f8)
+![1](https://github.com/user-attachments/assets/45f28619-b367-46f3-ac30-910131ffc175)
+![2](https://github.com/user-attachments/assets/30cc438c-865e-404b-9d36-6c0a66701c7a)
+![3](https://github.com/user-attachments/assets/a0599689-bf5f-4228-bbdf-b985518d52a1)
+![4](https://github.com/user-attachments/assets/916071b4-7aff-4e29-9219-c169aa742eea)
+![5](https://github.com/user-attachments/assets/cb34691e-788a-4928-a024-66a31e9fd707)
+![6](https://github.com/user-attachments/assets/216878eb-6604-4d48-aaa8-ef0a434d8315)
+![7](https://github.com/user-attachments/assets/d1851b06-1d98-4234-b338-32443a3cea58)
